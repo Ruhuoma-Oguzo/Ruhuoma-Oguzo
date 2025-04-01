@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **oguzoangel@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fgjK42FHfmuQiGqZ5xzXKUJ8J4fedPyn/view?usp=sharing](https://drive.google.com/file/d/1fgjK42FHfmuQiGqZ5xzXKUJ8J4fedPyn/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fgjK42FHfmuQiGqZ5xzXKUJ8J4fedPyn/view?usp=sharing](https://drive.google.com/file/d/1QLlq7erndr5Ot0kLJRxyl_WxKkhASCJG/view?usp=sharing)
 
 - ⚡ Fun fact **I think i'm funny**
 
